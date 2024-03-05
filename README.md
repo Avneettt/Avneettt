@@ -2,8 +2,7 @@
 - 👀 I’m interested in logo making, designing
 - 🌱 I’m currently learning digital media
 - 💞️ I’m looking to collaborate on designing
-- 📫 How to reach me emailavneet18.1997@gmail.com
-- 😄 Pronouns: ...
+- 📫 How to reach me..
 - ⚡ Fun fact: i can do anything
 
 <!---
